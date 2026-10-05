@@ -1,0 +1,2 @@
+# premium-bangle-forge-001-bangle-forging-round-mandrel
+Tired of guessing bangle sizes and losing track of your round mandrel settings? Stop wasting metal and time — this Notion template turns your forging chaos into a precision workshop.  The Bangle Forging &amp; Round Mandrel Craft Lab solves the two biggest pain points for bangle forgers: consistent sizing and project organization. It provides a centrali
